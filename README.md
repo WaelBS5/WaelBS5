@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **benslimawael5@gmail.com**
 
-- ⚡ Fun fact **I backpacked +20 countries**
+- ⚡ Fun fact **I backpacked +30 countries**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
